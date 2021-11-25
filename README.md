@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shivam.shiv2311@gmail.com**
 
-- ⚡ Fun fact **Biryani Meme and repeat.**
+- ⚡ Fun fact **Coding Reading and repeat.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
